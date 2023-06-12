@@ -1,7 +1,7 @@
 # Hiiii 👋
 I'm suriya , a 17 year old guy. I like to learn about new technology. 
 
-
+# About
 - 🔭 I’m currently available on discord...
 - 🌱 I’m currently learning python and machine learning ...
 - 👯 I’m looking to collaborate with  python programmers .
