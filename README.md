@@ -7,4 +7,4 @@ I'm suriya , a 17 year old guy. I like to learn about new technology🍻. A litt
 - 🔭 I’m currently available on discord.
 - 📫 Discord username:  @Suriya#7286
 - 😄 Pronouns: He/him or his
-- ⚡ Fun fact - Im athlete. 
+- ⚡ Fun fact -  Athlete Here. 
